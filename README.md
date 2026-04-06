@@ -40,7 +40,7 @@ Todas nuestras soluciones están construidas bajo el estándar de **máximo rend
 Si buscás una solución a medida para tu negocio o querés integrar alguna de nuestras herramientas:
 
 * **Ubicación**: Villa Mercedes, San Luis, Argentina.
-* **WhatsApp**: [2657521775]
+* **WhatsApp**: [5492657521775]
 * **Web**: [https://patric-soft-soluciones-digitales.vercel.app/ ]
 
 **PATRIC SOFT ®** - *Innovación digital desde el corazón de San Luis.*
